@@ -1,5 +1,5 @@
 - 
-- 
+-  i use arch btw (asus)
 -
 -
 - 
